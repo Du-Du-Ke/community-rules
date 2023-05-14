@@ -10,4 +10,4 @@ Before joining our community, please take a moment to review and accept the foll
 8. **No Trolling or Griefing:** Do not intentionally provoke or annoy others; this includes trolling, griefing, or posting misleading links.
 9. **Report Rule-breaking:** If someone breaks these rules, please report them to a @Moderator. Do not engage with or escalate the situation yourself.
 
-Remember, we intend this server to be a safe and welcoming space for everyone. We may mute, kick, or ban you if you cannot follow these rules. We appreciate your cooperation and look forward to building a great community together.
+Remember, we intend this server to be a safe and welcoming space for everyone. We may mute, kick, or ban you if you do not follow these rules. We appreciate your cooperation and look forward to building a great community together.
