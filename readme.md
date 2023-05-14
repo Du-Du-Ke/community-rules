@@ -3,4 +3,4 @@
 3. Keep conversations in the appropriate channels. 
 4. No spamming
 5. Do not share personal information
-6. If you witness any rule violations or feel unsafe, please let a moderator know.
+6. If you witness any rule violations or feel unsafe, please mention a @Moderator on any channel, and the issue will be addressed
